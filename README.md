@@ -219,4 +219,4 @@ Dead Space 3 is available as a complete free version with all features and updat
 Don't miss out on the exhilarating experience of Dead Space 3! Download your official copy today and dive into the action!
 
 ---
-**Last updated:** 2026-10-03 06:13:06 UTC
+**Last updated:** 2026-10-03 12:20:47 UTC
